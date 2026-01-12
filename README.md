@@ -4,9 +4,6 @@
 
 
 
-.
+# my LOVELYYY SILLYYY freiwnds!!!!:
 
-![image](https://github.com/user-attachments/assets/f538edc9-b410-4dcf-a564-b7bee07e567a)  ![image](https://github.com/user-attachments/assets/f8af80a4-f081-4da3-b979-f18a65789ef4)
-
-
-my LOVELYYY SILLYYYY friends!!!
+![image](https://github.com/user-attachments/assets/f538edc9-b410-4dcf-a564-b7bee07e567a)  ![image](https://github.com/user-attachments/assets/f8af80a4-f081-4da3-b979-f18a65789ef4) ![image](https://github.com/user-attachments/assets/4fb7024a-0d66-4cf5-932f-1848c7a5a9dd)
