@@ -3,7 +3,7 @@
 
 <p align="center">
     <br/>$${\color{#FFC672}\text{𝗪𝗘𝗢𝗪 𝘓𝘐𝘈𝘔 𝘡𝘌 𝘚𝘞𝘖𝘙𝘋} }$$
-        <br/>$${\color{#FFC672}\text{there are rumors of a mysterious sword singing ata books! :o} }$$
+        <br/>$${\color{#FFC672}\text{there are rumors of a mysterious sword signing ata books! :o} }$$
 <br><img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/6678c4d0-5312-4d04-832b-cd7e0bcb9728" />
   <br/>$${\color{#FFC772}\text{17   𝘩𝘦/𝘩𝘪𝘮 𑣲-15 pls iwcare ♡} }$$⠀
     <br>$${\color{#F8BD69}\text{c+h ALWAYS >:3} }$$⠀
