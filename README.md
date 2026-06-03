@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/cb548390-7de5-4253-9778-43395f30f420" /><br/>
+    <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/cb548390-7de5-4253-9778-43395f30f420" /><br/>
 
 <p align="center">
     <br/>$${\color{#FFC672}\text{𝗪𝗘𝗢𝗪 𝘓𝘐𝘈𝘔 𝘡𝘌 𝘚𝘞𝘖𝘙𝘋} }$$
