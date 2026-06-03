@@ -11,7 +11,9 @@
     <br>$${\color{#D69A48}\text{⌞ 𝘮𝘪𝘨𝘳𝘢𝘪𝘯𝘦 𝘩𝘦𝘢𝘥𝘢𝘤𝘩𝘦 𝘰𝘳 𝘪𝘸𝘤 𝘪𝘯 𝘯𝘢𝘮𝘦 = 𝘤+𝘩 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 ⌝ } }$$
     <br/>$${\color{#FFC672}\text{── .✦} }$$
         <br>$${\color{#C58836}\text{i cry/tear up easily from excitement or strong emotions!} }$$⠀
-        <br>$${\color{#B57723}\text{especially having to do with fictional medias or music :P} }$$⠀
+        <br>$${\color{#B57723}\text{especially having to do with fictional medias or music} }$$⠀
+        <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/b5db8b1e-7ce6-4d22-ba68-787909081ae3" />
+
 
     
 
