@@ -5,6 +5,9 @@
     $${\color{#FFC46C}\text{𝗪𝗘𝗢𝗪 𝘓𝘐𝘈𝘔 𝘡𝘌 𝘚𝘞𝘖𝘙𝘋} }$$
         $${\color{#E59F46}\text{17   𝘩𝘦/𝘩𝘪𝘮} }$$⠀
     <br>$${\color{#CA741F}\text{c+h ALWAYS >:3} }$$⠀
+        $${\color{#973F0D}\text{freq. migraines} }$$⠀
+            <br>$${\color{#6B2606}\text{cuddles welcome if migraine, headache or iwc in name !} }$$⠀
+    
 
     
 
