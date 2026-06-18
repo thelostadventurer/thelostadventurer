@@ -15,5 +15,5 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&weight=500&size=15&letterSpacing=-1px&pause=250&color=A2BADB&width=500&height=80&lines=I+DON'T+KNOW+MUCH+ABOUT+YOUR+LIFE+BEYOND+THESE+WALLS;THE+FLEETING+SENSE+OF+LOVE+WITHIN+THESE+GODFORSAKEN+HALLS;AND+I+CAN+HEAR+IT+IN+HIS+VOICE+IN+EVERY+CALL;THIS+GIRL+WHOS+SLEPT+A+HUNDRED+YEARS+HAS+SOMETHING+AFTER+ALL!+%3A')" alt="Typing SVG" /></a>
 
 <br/>
-<img width="200" height="170" alt="image" src="https://github.com/user-attachments/assets/9b4ea9d5-012a-4a1c-b5e2-52be2140b084" /> <img width="200" height="170" alt="image" src="https://github.com/user-attachments/assets/cb06a4e0-f890-4a93-a298-5d7345d303f3" />
+<img width="200" height="170" alt="image" src="https://github.com/user-attachments/assets/9b4ea9d5-012a-4a1c-b5e2-52be2140b084" /> <img width="170" height="200" alt="image" src="https://github.com/user-attachments/assets/e3908b41-fc25-44bd-8c0c-a7f416b0684c" />
 
