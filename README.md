@@ -1,24 +1,14 @@
-<p align="center">
-    <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/cb548390-7de5-4253-9778-43395f30f420" /><br/>
+<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/fc8e42f7-30a8-408a-8c02-94c3a8c50c6c" />
+
+<br/>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&size=19&pause=1000&color=A2BADB&width=435&lines=WE'LL+SEE+CREATION+COME+UNDONE;THESE+BONES+THAT+BOUND+US+WILL+BE+GONE;WE'LL+STIR+OUR+SPIRITS+'TIL+WE'RE+ONE;THEN+SOFT+AS+SHADOWS+WE'LL+BECOME" alt="Typing SVG" /></a>
+
+<p align="center"><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/8cd19f0c-0bff-4c41-b270-f2b1ec5338ed" />
 
 <p align="center">
-    <br/>$${\color{#FFC672}\text{𝗪𝗘𝗢𝗪 𝘓𝘐𝘈𝘔 𝘡𝘌 𝘚𝘞𝘖𝘙𝘋} }$$
-        <br/>$${\color{#FFC672}\text{there are rumors of a mysterious sword signing ata books! :o} }$$
-<br><img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/6678c4d0-5312-4d04-832b-cd7e0bcb9728" />
-  <br/>$${\color{#FFC772}\text{17   𝘩𝘦/𝘩𝘪𝘮 𑣲-15 pls iwcare ♡} }$$⠀
-    <br>$${\color{#F8BD69}\text{c+h ALWAYS >:3} }$$⠀
-        <img width="40" height="45" alt="image" src="https://github.com/user-attachments/assets/2493ebe5-9978-4e49-9a76-7b3e68cfbed3" />
-        $${\color{#DFA451}\text{𝘧𝘳𝘦𝘲. 𝘣𝘢𝘥 𝘩𝘦𝘢𝘥𝘢𝘤𝘩𝘦𝘴} }$$⠀
-    <br>$${\color{#D69A48}\text{⌞ '𝘮𝘪𝘨𝘳𝘢𝘪𝘯𝘦', '𝘩𝘦𝘢𝘥𝘢𝘤𝘩𝘦', 𝘰𝘳 '𝘪𝘸𝘤' 𝘪𝘯 𝘯𝘢𝘮𝘦 = 𝘤+𝘩 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 ⌝ } }$$
-    <br/>$${\color{#FFC672}\text{── .✦} }$$
-        <br>$${\color{#C58836}\text{i cry/tear up easily from excitement or strong emotions!} }$$⠀
-        <br>$${\color{#B57723}\text{especially having to do with fictional medias or music} }$$⠀
-        <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/b5db8b1e-7ce6-4d22-ba68-787909081ae3" />
+    <br/>$${\color{#A2BADB}\text{HELLO i am weow!! he/him 17} }$$
+    <br/>$${\color{#A2BADB}\text{cuddle with me and interact with me!} }$$
+        <br/>$${\color{#A2BADB}\text{-15 iwcare, i would prefer moots be my age! stay safe online} }$$
+            <br/>$${\color{#A2BADB}\text{there are rumors of a mysterious sword who signs ata books 👀} }$$
 
-
-    
-
-<p align="center">
-<img width="700" height=370" alt="image" src="https://github.com/user-attachments/assets/9089d63d-3f91-482c-a17a-7df98bc94d7d" />
-
-
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&weight=500&size=15&letterSpacing=-1px&pause=250&color=A2BADB&width=500&height=80&lines=I+DON'T+KNOW+MUCH+ABOUT+YOUR+LIFE+BEYOND+THESE+WALLS;THE+FLEETING+SENSE+OF+LOVE+WITHIN+THESE+GODFORSAKEN+HALLS;AND+I+CAN+HEAR+IT+IN+HIS+VOICE+IN+EVERY+CALL;THIS+GIRL+WHOS+SLEPT+A+HUNDRED+YEARS+HAS+SOMETHING+AFTER+ALL!+%3A')" alt="Typing SVG" /></a>
