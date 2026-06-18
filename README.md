@@ -3,7 +3,7 @@
 <br/>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&size=19&pause=1000&color=A2BADB&width=435&lines=WE'LL+SEE+CREATION+COME+UNDONE;THESE+BONES+THAT+BOUND+US+WILL+BE+GONE;WE'LL+STIR+OUR+SPIRITS+'TIL+WE'RE+ONE;THEN+SOFT+AS+SHADOWS+WE'LL+BECOME" alt="Typing SVG" /></a>
 
-<p align="center"><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/8cd19f0c-0bff-4c41-b270-f2b1ec5338ed" />
+<p align="center"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/8cd19f0c-0bff-4c41-b270-f2b1ec5338ed" />
 
 <p align="center">
     <br/>$${\color{#A2BADB}\text{HELLO i am weow!! he/him 17} }$$
