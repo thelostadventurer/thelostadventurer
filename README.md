@@ -13,7 +13,8 @@
             <br/>$${\color{#A2BADB}\text{there are rumors of a mysterious sword who signs ata books 👀} }$$
                         <br/>$${\color{#A2BADB}\text{i am trying to get over my c+h shyness....so if youre same fandom i might cud with you!} }$$
                                                 <br/>$${\color{#A2BADB}\text{pleasee let me know if i'm bothering you} }$$
-                                                                                                <br/>$${\color{#A2BADB}\text{(additionally, /please/ let me know if im sitting with/following someone problematic)} }$$
+                                                                                                <br/>$${\color{#A2BADB}\text{(additionally, /please/ let me know if im sitting with/following someone problematic, i may not be able to recognize it)} }$$
+                                                                                                                                                                                                <br/>$${\color{#A2BADB}\text{dni bigots, proshippers, boundary breakers, anything in bad faith .}}$$
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&weight=500&size=15&letterSpacing=-1px&pause=250&color=A2BADB&width=500&height=80&lines=I+DON'T+KNOW+MUCH+ABOUT+YOUR+LIFE+BEYOND+THESE+WALLS;THE+FLEETING+SENSE+OF+LOVE+WITHIN+THESE+GODFORSAKEN+HALLS;AND+I+CAN+HEAR+IT+IN+HIS+VOICE+IN+EVERY+CALL;THIS+GIRL+WHOS+SLEPT+A+HUNDRED+YEARS+HAS+SOMETHING+AFTER+ALL!+%3A')" alt="Typing SVG" /></a> 
 
