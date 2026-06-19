@@ -11,8 +11,7 @@
     <br/>$${\color{#A2BADB}\text{cuddle with me and interact with me!} }$$
         <br/>$${\color{#A2BADB}\text{-15 iwcare, i would prefer moots be my age! stay safe online} }$$
             <br/>$${\color{#A2BADB}\text{there are rumors of a mysterious sword who signs ata books 👀} }$$
-                        <br/>$${\color{#A2BADB}\text{i am trying to get over my c+h shyness....so if youre same fandom i might cud with you!} }$$
-                                                <br/>$${\color{#A2BADB}\text{pleasee let me know if i'm bothering you} }$$
+                        <br/>$${\color{#A2BADB}\text{i am trying to get over my c+h shyness... so if youre same fandom i might cud with you! please let me know if i'm a bother!} }$$
                                                                                                 <br/>$${\color{#A2BADB}\text{(additionally, /please/ let me know if im sitting with/following someone problematic, i may not be able to recognize it)} }$$
                                                                                                                                                                                                 <br/>$${\color{#A2BADB}\text{dni bigots, proshippers, boundary breakers, anything in bad faith .}}$$
 
