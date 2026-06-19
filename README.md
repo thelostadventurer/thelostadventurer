@@ -7,7 +7,7 @@
 
 
 <p align="center">
-    <br/>$${\color{#A2BADB}\text{HELLO i am weow!! he/him 17} }$$
+    <br/>$${\color{#A2BADB}\text{HELLO i am weow!! he/him 17 frequent migraines} }$$
     <br/>$${\color{#A2BADB}\text{cuddle with me and interact with me!} }$$
         <br/>$${\color{#A2BADB}\text{-15 iwcare, i would prefer moots be my age! stay safe online} }$$
             <br/>$${\color{#A2BADB}\text{there are rumors of a mysterious sword who signs ata books 👀} }$$
