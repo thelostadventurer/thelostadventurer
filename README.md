@@ -1,12 +1,14 @@
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=a0b1d5&bar_color_cover=false">
+  </a>
+</p>
+
 <p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/fc8e42f7-30a8-408a-8c02-94c3a8c50c6c" />
 
 <br/>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&size=19&pause=1000&color=A2BADB&width=435&lines=WE'LL+SEE+CREATION+COME+UNDONE;THESE+BONES+THAT+BOUND+US+WILL+BE+GONE;WE'LL+STIR+OUR+SPIRITS+'TIL+WE'RE+ONE;THEN+SOFT+AS+SHADOWS+WE'LL+BECOME." alt="Typing SVG" /></a>
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=a0b1d5">
-  </a>
-</p>
+
 
 <p align="center"><img width="140" height="140" alt="image" src="https://github.com/user-attachments/assets/803e58a8-6317-426e-92f2-3070df752d42" />
 
