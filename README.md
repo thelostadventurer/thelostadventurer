@@ -20,7 +20,7 @@
             <br/>$${\color{#A2BADB}\text{there are rumors of a mysterious sword who signs ata books 👀} }$$
                         <br/>$${\color{#A2BADB}\text{info straw soon ,,} }$$
                                                                                                 <br/>$${\color{#A2BADB}\text{(PLSLS lmk if im sitting with/following someone problematic, i may not be able to recognize it)} }$$
-                                                                                                                                                                                                <br/>$${\color{#A2BADB}\text{dni bigots, proshippers, boundary breakers, anything in bad faith .}}$$
+                                                                                                                                                                                                <br/>$${\color{#A2BADB}\text{dni bigots, proshitters, radqueer, boundary breakers(mcyt spaces but in general), terfs, anti-recovery, anything in bad faith .}}$$
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&weight=500&size=15&letterSpacing=-1px&pause=250&color=A2BADB&width=500&height=80&lines=I+DON'T+KNOW+MUCH+ABOUT+YOUR+LIFE+BEYOND+THESE+WALLS;THE+FLEETING+SENSE+OF+LOVE+WITHIN+THESE+GODFORSAKEN+HALLS;AND+I+CAN+HEAR+IT+IN+HIS+VOICE+IN+EVERY+CALL;THIS+GIRL+WHOS+SLEPT+A+HUNDRED+YEARS+HAS+SOMETHING+AFTER+ALL!+%3A')" alt="Typing SVG" /></a> 
 
