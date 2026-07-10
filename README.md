@@ -15,7 +15,7 @@
 
 <p align="center">
     <br/>$${\color{#A2BADB}\text{HELLO i am weow!! he/him 17 frequent migraines} }$$
-    <br/>$${\color{#A2BADB}\text{cuddle with me pls i luv cud piles} }$$
+    <br/>$${\color{#A2BADB}\text{cuddle with me freely, idc who! often afk/offtab} }$$
         <br/>$${\color{#A2BADB}\text{-15 iwcare, i would prefer moots be my age! stay safe online} }$$
             <br/>$${\color{#A2BADB}\text{there are rumors of a mysterious sword who signs ata books 👀} }$$
                         <br/>$${\color{#A2BADB}\text{info straw soon ,,} }$$
