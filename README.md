@@ -1,6 +1,6 @@
 
 
-<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/fc8e42f7-30a8-408a-8c02-94c3a8c50c6c" />
+<p align=center><img width="320" height="400" alt="image" src="https://github.com/user-attachments/assets/efc04e22-a1f9-4aef-8cd2-5089e3ccf4de" />
 
 <br/>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&size=19&pause=1500&color=A2BADB&width=460&lines=WE'LL+SEE+CREATION+COME+UNDONE;THESE+BONES+THAT+BOUND+US+WILL+BE+GONE;WE'LL+STIR+OUR+SPIRITS+'TIL+WE'RE+ONE;THEN+SOFT+AS+SHADOWS+WE'LL+BECOME." alt="Typing SVG" /></a>
