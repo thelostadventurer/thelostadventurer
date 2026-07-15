@@ -10,7 +10,7 @@
 
 <summary>dni</summary>
 
-<br/>bigots, whitewashers of any kind but especially phgithing ill kill you, /r medsword <- proshitters, nsfw jokes on safe serv INCLUDING COPYPASTERS, endos, dream supporters/stans, wilbur supporters/stans, airy x contestant, anti-recovery, edtwt, shtwt, boundary breakers (mcyt but in general), radqueers, bad faith (identities), u liked technolarp, aibros/generative ai supporters/chat bot users dni
+<br/>bigots, whitewashers of any kind but especially phgithing ill kill you, /r medsword <- proshitters, nsfw jokes on safe serv INCLUDING COPYPASTERS, endos, dream supporters/stans, wilbur supporters/stans, /r airy x contestant, anti-recovery, edtwt, shtwt, boundary breakers (mcyt but in general), radqueers, bad faith (identities), u liked technolarp, aibros/generative ai supporters/chat bot users dni
 
 ***fictionkin who believe doubles arent real/that you have no doubles/have a complex towards doubles*** dni
 
