@@ -1,7 +1,5 @@
 
 
-<p align="center"><img width="320" height="400" alt="image" src="https://github.com/user-attachments/assets/36cc7cdb-a0f8-4d0b-8d78-b80480fb3ab3" />
-
 <br/>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&size=19&pause=1000&color=A2BADB&width=460&lines=WE'LL+SEE+CREATION+COME+UNDONE;THESE+BONES+THAT+BOUND+US+WILL+BE+GONE;WE'LL+STIR+OUR+SPIRITS+'TIL+WE'RE+ONE;THEN+SOFT+AS+SHADOWS+WE'LL+BECOME." alt="Typing SVG" /></a>
 
