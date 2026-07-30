@@ -7,3 +7,5 @@
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=17&letterSpacing=0.2rem&duration=3900&pause=1000&color=20385E&center=true&multiline=true&width=1000&height=300&lines=How+long+was+I+gone%3F;It+felt+like+you+were+with+me+then%2C;In+that+place.;It+felt+like+a+dream;Where+you+can't+remember+any+details;People%2C;Places.;Everything+is+blurred+out;But+you+can+still+feel+the+atmosphere;Of+what+it+was+like+to+be+there;I+have+a+feeling;That+after+this;Reality+isn't+going+to+be+the+same+anymore.)](https://git.io/typing-svg)
+
+<p align-"center">I AM MYSTERIOUS SWORD!!!!!I AM EVIL AND OMINOUS AND I SIGN ATABOOKS 
