@@ -31,7 +31,7 @@ cxh freely Pleasepleasepleasepleaseplease with a cherry on top!!!! esp if same f
 
 <summary>dni/iwc</summary>
 
-i have genuinely no tolerance for bigots, whitewashers, proshitters, mcyt boundary breakers, generative ai users/supporters/aibros, nsfw jokes in safe server (including copy pasters)
+i have genuinely no tolerance for bigots, whitewashers, maga, proshitters, mcyt boundary breakers, generative ai users/supporters/aibros, nsfw jokes in safe server (including copy pasters)
 
 i soft block rather than hide due to anxiety of sitting on top of someone i cant see
 
