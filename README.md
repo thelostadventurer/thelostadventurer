@@ -21,7 +21,7 @@ WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS!!!!!!
 
 energy & hyperfixes fluctuate often 
 
-fictkin, doubles are my friends
+fictionflicker, doubles are my friends
 
 cxh freely Pleasepleasepleasepleaseplease with a cherry on top!!!! esp if same fandom! I may cuddle with same fandom/if i see you around a lot, i am shy though!
 
