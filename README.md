@@ -17,7 +17,7 @@ WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS!!!!!!
 
 energy & hyperfixes fluctuate often 
 
-spiritual fictkin & fictionflicker, doubles always ok!! :D <- fictionkin who are rude towards doubles or believe doubles dont exist, dni for my own health please
+spiritual fictkin & fictionflicker, doubles u r now my friends!! :D <- fictionkin who are rude towards doubles or believe doubles dont exist, dni for my own health please
 
 cxh freely Pleasepleasepleasepleaseplease with a cherry on top!!!! esp if same fandom! I may cuddle with same fandom/if i see you around a lot, i am shy though!
 
