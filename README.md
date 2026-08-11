@@ -25,6 +25,8 @@ im mysterious sword on atabook >:]
 
 bigots, whitewashers, "pro"shippers, boundary breakers (mcyt but in general), generative ai users/supporters/aibros, nsfw jokes in safe serv (including copy pasters), i have genuinely no tolerance for you & i will avoid you! dni. i soft block rather than hide due to anxiety of sitting on top of someone i cant see
 
+^^ clarifying since i see this so much in phighting.... whitewashing is not a "joke" skin thats just racism whether its a fictional character or not ❤️ its not funny & will earn you a block sorry
+
 </details>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=17&letterSpacing=0.2rem&duration=3900&pause=1000&color=20385E&center=true&multiline=true&width=1000&height=300&lines=How+long+was+I+gone%3F;It+felt+like+you+were+with+me+then%2C;In+that+place.;It+felt+like+a+dream;Where+you+can't+remember+any+details;People%2C;Places.;Everything+is+blurred+out;But+you+can+still+feel+the+atmosphere;Of+what+it+was+like+to+be+there;I+have+a+feeling;That+after+this;Reality+isn't+going+to+be+the+same+anymore.)](https://git.io/typing-svg)
