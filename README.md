@@ -13,15 +13,15 @@
 
 HILLO PONYTOWN im weow!! i am 17, he/him! adhd, dyscalculia, anxiety :] i like to draw and play sewh and  swim and i luv pokemon and i have fun evrydaey!!! i play exclusively on mobile so sometimes i accidentally move or disconnect, 's my bad!!
 
+i have frequent migraines,, if "headache" is in my name cuddles are extremely appreciated ^^; similarly insomnia sometimes kicks my ass and ill wanna sit behind someone <- if i ever move slowly ingame its probably because of this!
+
 WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS!!!!!! 
 
 energy & hyperfixes fluctuate often 
 
-spiritual fictkin & fictionflicker, doubles u r now my friends!! :D <- fictionkin who are rude towards doubles or believe doubles dont exist, dni for my own health please
+fictkin, doubles are my friends
 
 cxh freely Pleasepleasepleasepleaseplease with a cherry on top!!!! esp if same fandom! I may cuddle with same fandom/if i see you around a lot, i am shy though!
-
-i have frequent migraines,, if "headache" is in my name cuddles are extremely appreciated ^^; similarly insomnia sometimes kicks my ass and ill wanna sit behind someone <- if i ever move slowly ingame its probably because of this!
 
 </details>
 
