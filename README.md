@@ -15,7 +15,7 @@ HILLO PONYTOWN im weow!! i am 17, he/him! adhd, dyscalculia, anxiety :] i like t
 
 ENTOMOPHOBIA pleaseee dont talk to me about bugs and give me a headsup before showing any imagery with bugs
 
-i have frequent migraines,, if "headache" is in my name cuddles are extremely appreciated ^^; similarly insomnia sometimes kicks my ass and ill wanna sit behind someone <- if i ever react slowly ingame & im not afk, odds are its because of this!
+i have frequent migraines,, if "headache" is in my name cuddles are extremely appreciated ^^; similarly insomnia sometimes kicks my ass and ill wanna sit behind someone <- if i ever react slowly ingame & im not afk, odds are its because of this! "tired" "sleepy" etc may be in my name, cxh is very welcome for all of it
 
 WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS!!!!!! 
 
