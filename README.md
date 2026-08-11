@@ -23,7 +23,7 @@ energy & hyperfixes fluctuate often
 
 fictionflicker, doubles are my friends🫵!!!!
 
-cxh freely Pleasepleasepleasepleaseplease with a cherry on top!!!! esp if same fandom! I may cuddle with same fandom/if i see you around a lot, i am shy though!
+cxh freely Pleasepleasepleasepleaseplease with a cherry on topI LOVE TO CUDDLE!!!!
 
 </details>
 
