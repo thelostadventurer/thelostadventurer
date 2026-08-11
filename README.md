@@ -11,21 +11,27 @@
 
 
 
-HIHIHIHI HEEEEELLLOOO PONYTOWN im weow!! i am 17 he/him! i liek to draw and plah sewh and  swim and i luv pokemon and i have fun evrydaey 
+HILLO PONYTOWN im weow!! i am 17, he/him! adhd, dyscalculia, anxiety :] i like to draw and play sewh and  swim and i luv pokemon and i have fun evrydaey!!! 
 
-WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS
+WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS!!!!!! 
 
-energy & hyperfixes fluctuate
+energy & hyperfixes fluctuate often 
 
-/srs spiritual fictkin & fictionflicker, doubles always ok!! :D <- fictionkin who are rude towards doubles or believe doubles dont exist, dni for my own health please
+spiritual fictkin & fictionflicker, doubles always ok!! :D <- fictionkin who are rude towards doubles or believe doubles dont exist, dni for my own health please
 
 cxh freely Pleasepleasepleasepleaseplease with a cherry on top!!!! esp if same fandom! I may cuddle with same fandom/if i see you around a lot, i am shy though!
 
-im mysterious sword on atabook >:]
+</details>
 
-bigots, whitewashers, "pro"shippers, boundary breakers (mcyt but in general), generative ai users/supporters/aibros, nsfw jokes in safe serv (including copy pasters), i have genuinely no tolerance for you & i will avoid you! dni. i soft block rather than hide due to anxiety of sitting on top of someone i cant see
+<details>
 
-^^ clarifying since i see this so much in phighting.... whitewashing is not a "joke" skin thats just racism whether its a fictional character or not ❤️ its not funny & will earn you a block sorry
+<summary>dni/iwc</summary>
+
+i have genuinely no tolerance for bigots, whitewashers, proshitters, mcyt boundary breakers, generative ai users/supporters/aibros, nsfw jokes in safe server (including copy pasters)
+
+i soft block rather than hide due to anxiety of sitting on top of someone i cant see
+
+^^ clarifying since i see this so much in phighting.... whitewashing is not a "joke" skin thats just racism whether its a fictional character or not. its not funny & will earn you a block
 
 </details>
 
