@@ -23,7 +23,7 @@ energy & hyperfixes fluctuate often
 
 fictionflicker, doubles are my friends🫵!!!!
 
-cxh freely Pleasepleasepleasepleaseplease with a cherry on topI LOVE TO CUDDLE!!!!
+cxh freely Pleasepleasepleasepleaseplease with a cherry on topI LOVE TO CUDDLE!!!! idc about being covered for c+h!! my pixels YEARN to touch your pixels lets oomf it up slash silly
 
 </details>
 
