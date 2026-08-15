@@ -5,11 +5,11 @@
 
 <p align="center"><img width="140" height="140" alt="image" src="https://github.com/user-attachments/assets/803e58a8-6317-426e-92f2-3070df752d42" />
 
-remember, the best thing you can do to fight back against AI is create !!
+<p align=center>remember, the best thing you can do to fight back against AI is *create* !!
 
 <details>
 
-<summary>INFO</summary>
+<summary>about me</summary>
 
 quick info thing !! someday i will make this formatted and gorgeous believe in me
 
