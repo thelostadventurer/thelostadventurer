@@ -5,7 +5,7 @@
 
 <p align="center"><img width="140" height="140" alt="image" src="https://github.com/user-attachments/assets/803e58a8-6317-426e-92f2-3070df752d42" />
 
-<p align=center>remember, the best thing you can do to fight back against AI is *create* !!
+<p align=center>remember, the best thing you can do to fight back against AI is create !!
 
 <details>
 
@@ -13,11 +13,11 @@
 
 quick info thing !! someday i will make this formatted and gorgeous believe in me
 
-HILLO PONYTOWN im weow!! i am 17, he/him! adhd, dyscalculia, anxiety :] i like to draw and play sewh and  swim and i luv pokemon and i have fun evrydaey!!! i play exclusively on mobile so sometimes i accidentally move or disconnect, 's my bad!!
+HILLO PONYTOWN im weow!! i am 17, he/him! adhd, dyscalculia, anxiety :] i like to draw and play sewh and  swim and i luv pokemon and i have fun evrydaey!!! i play exclusively on mobile so sometimes i accidentally move or disconnect
 
 ENTOMOPHOBIA pleaseee dont talk to me about bugs and give me a headsup before showing any imagery with bugs
 
-i have frequent migraines,, if "headache" is in my name cuddles are extremely appreciated ^^; similarly insomnia sometimes kicks my ass and ill wanna sit behind someone <- if i ever react slowly ingame & im not afk, odds are its because of this! "tired" "sleepy" etc may be in my name, cxh is very welcome for all of it
+i have frequent migraines,, if "headache" is in my name cuddles are extremely appreciated ^^; similarly insomnia sometimes kicks my ass and ill wanna sit with someone! "tired" "sleepy" etc may be in my name
 
 WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS!!!!!! 
 
