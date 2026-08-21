@@ -11,21 +11,11 @@
 
 <summary>about me</summary>
 
-quick info thing !! someday i will make this formatted and gorgeous believe in me
+hi im weow!! 7teen, he/him, adhd, likely dyscalculia! i like 2 draw and swim and play sewh and hav a fun time :D currently medicated for migraines, if "headache" or "eepy" is in my name pls feel free to c+h! actually just feel free to c+h in general I LOVE CUDDLIGN u dotn need to ask first and idc about being covered for cuds!!
 
-HILLO PONYTOWN im weow!! i am 17, he/him! adhd, likely dyscalculia, anxiety :] i like to draw and play sewh and  swim and i luv pokemon and i have fun evrydaey!!! i play exclusively on mobile so sometimes i accidentally move or disconnect
+entomophobia + fictionflicker
 
-ENTOMOPHOBIA pleaseee dont talk to me about bugs and give me a headsup before showing any imagery with bugs
-
-i have frequent migraines,, if "headache" is in my name cuddles are extremely appreciated ^^; similarly insomnia sometimes kicks my ass and ill wanna sit with someone! "tired" "sleepy" etc may be in my name
-
-WORLDS IS MY FAVORITE THING EVA ASK ME ABOUT WORLDS!!!!!! 
-
-energy & hyperfixes fluctuate often 
-
-fictionflicker, doubles are my friends🫵!!!!
-
-cxh freely Pleasepleasepleasepleaseplease with a cherry on topI LOVE TO CUDDLE!!!! idc about being covered for c+h!! my pixels YEARN to touch your pixels lets oomf it up slash silly
+my DNI falls into common sense, just kno dat i softblock & avoid freely! i dont like having long redundant lists that wont do anything to keep people away. proshitters block me and allat. i cant make a good list without ranting in it :,]
 
 </details>
 
