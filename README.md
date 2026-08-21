@@ -13,7 +13,7 @@
 
 quick info thing !! someday i will make this formatted and gorgeous believe in me
 
-HILLO PONYTOWN im weow!! i am 17, he/him! adhd, dyscalculia, anxiety :] i like to draw and play sewh and  swim and i luv pokemon and i have fun evrydaey!!! i play exclusively on mobile so sometimes i accidentally move or disconnect
+HILLO PONYTOWN im weow!! i am 17, he/him! adhd, likely dyscalculia, anxiety :] i like to draw and play sewh and  swim and i luv pokemon and i have fun evrydaey!!! i play exclusively on mobile so sometimes i accidentally move or disconnect
 
 ENTOMOPHOBIA pleaseee dont talk to me about bugs and give me a headsup before showing any imagery with bugs
 
