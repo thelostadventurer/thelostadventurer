@@ -11,6 +11,8 @@
 
 <summary>about me</summary>
 
+i will make dis sooo formatted and pretty sumday :-[
+
 hi im weow!! 7teen, he/him, adhd, likely dyscalculia! i like 2 draw and swim and play sewh and hav a fun time :D currently medicated for migraines, if "headache" or "eepy" is in my name pls feel free to c+h! actually just feel free to c+h in general I LOVE CUDDLIGN u dotn need to ask first and idc about being covered for cuds!!
 
 entomophobia + fictionflicker
