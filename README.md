@@ -7,15 +7,17 @@
 
 <p align=center>remember, the best thing you can do to fight back against AI is create !!
 
+<p align=center>im weow!! 17 y/o! -15 iwcare. im mysterious sword on atabook :D
+
 <details>
 
-<summary>about me</summary>
+<summary>read me for more info :o</summary>
 
-helo me weow aka mysterious sword on atabooks! that me :3 7teen, he/him, adhd, likely dyscalculia! i luv pokemon and worlds and i like 2 draw and swim and play sewh and hav a fun time :D currently medicated for migraines, if "headache" or "eepy" is in my name pls feel free to c+h! actually just feel free to c+h in general i LOVE CUDDLIGN my pixels yearn for ur pixels, u dotn need to ask first and idc about being covered for cuds!!
+<p align=center>hey!!!! he/him, adhd, likely dyscalculia! please feel free to c+h! currently medicated for migraines & i have insomnia, cudcomf especially appreciated if "headache" or "eepy" is in my name. i accidentally disconnect or move a lot due to being on mobile (and sometimes my cat steps on my screen)
 
-entomophobia + fictionflicker, doubles are my friends! pls give warning before showing/mentioning bugs
+<p align=center>entomophobia (fear of bugs) + fictionflicker, doubles are my friends! please give a headsup before showing/mentioning bugs. i am easily emotional and excited about things that i love to the point of tearing up!! this can include things as simple as fictional characters or music
 
-my DNI falls into common sense, just kno dat i softblock & avoid freely! i dont like having long redundant lists that wont do anything to keep people away. proshitters block me and allat. i cant make a good list without ranting in it :,]
+<p align=center>my dni falls into common sense, just know that i softblock & avoid freely. proshitters block me and allat. the only specific warning that i feel is relevant to share here is that whitewashing is not a funny haha meme skin, its racist. know that i have many of you softblocked because ive seen you in a legacy or whitewashed skin
 
 </details>
 
