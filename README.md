@@ -17,7 +17,7 @@
 
 <p align=center>entomophobia (fear of bugs) + fictionflicker, doubles are my friends! please give a headsup before showing/mentioning bugs. i am easily emotional and excited about things that i love to the point of tearing up!! this can include things as simple as fictional characters or music
 
-<p align=center>my dni falls into common sense, just know that i softblock & avoid freely. proshitters block me and allat. the only specific warning that i feel is relevant to share here is that whitewashing is not a funny haha meme skin, its racist. know that i have many of you softblocked because ive seen you in a legacy or whitewashed skin
+<p align=center>my dni falls into common sense, just know that i softblock & avoid freely. proshitters block me and allat. the only specific warning that i feel is relevant to share here is that whitewashing is not a funny haha meme skin, its racist. know that i have many of you softblocked because ive seen you in a legacy or whitewashed skin. i do not fly with nsfw jokes either, there are children here weirdos
 
 </details>
 
