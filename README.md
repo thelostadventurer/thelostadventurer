@@ -12,7 +12,7 @@
 
 <summary>read me for more info :o</summary>
 
-<p align=center>hey!!!! he/him, adhd, likely dyscalculia! please feel free to c+h! currently medicated for migraines & i have insomnia, cudcomf especially appreciated if "headache" or "eepy" + any variations ("tired", "migraine", etc) is in my name. i accidentally disconnect or move a lot due to being on mobile (and sometimes my cat steps on my screen)
+<p align=center>hey!!!! he/him, adhd, likely dyscalculia! please feel free to c+h! currently medicated for migraines & i have insomnia, cuds especially appreciated if "headache" or "eepy" + any variations ("tired", "migraine", etc) is in my name. i accidentally disconnect or move a lot due to being on mobile (and sometimes my cat steps on my screen)
 
 <p align=center>entomophobia (fear of bugs) + fictionflicker, doubles are my friends! please give a headsup before showing/mentioning bugs. i am easily emotional and excited about things that i love to the point of tearing up!! this can include things as simple as fictional characters or music
 
