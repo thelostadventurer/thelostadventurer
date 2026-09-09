@@ -5,5 +5,6 @@ ART BY @Firebrandd 🥹🥹🥹🥹
 <img width="300" height="43" alt="image" src="https://github.com/user-attachments/assets/204f2a8d-b78a-4466-ae44-012e32c7fba7" />
 
 
-<img width="1983" height="453" alt="image" src="https://github.com/user-attachments/assets/8ff2381a-a7b9-4205-bf0b-dd4107758e5e" />
+<img width="2391" height="453" alt="image" src="https://github.com/user-attachments/assets/26f3b43b-9671-4f3d-9883-93d7ac26b8c0" />
+
 
