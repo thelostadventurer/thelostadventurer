@@ -7,4 +7,6 @@ ART BY @Firebrandd 🥹🥹🥹🥹
 
 <img width="2391" height="453" alt="image" src="https://github.com/user-attachments/assets/26f3b43b-9671-4f3d-9883-93d7ac26b8c0" />
 
-sorry i keep wanting to redo my info owwww..... c+h always i like cuddles, i am 17 if ur -15 pls keep interactions minimum to compliments! i luvvv to c+h pls never be shy, if ur my friends friend then ur my friend too!, im usually a bit nervous to int even if we've added
+sorry i keep wanting to redo my info owwww..... c+h always i like cuddles, i am 17 if ur -15 pls keep interactions minimum to compliments!
+
+if ur my friends friend then ur my friend too!, im usually a bit nervous to int even if we've added
