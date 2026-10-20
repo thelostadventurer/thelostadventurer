@@ -9,6 +9,6 @@ ART BY @Firebrandd 🥹🥹🥹🥹
 
 sorry i keep wanting to redo my info owwww..... c+h always i like cuddles, i am 17 if ur -15 pls keep interactions minimum to compliments!
 
-if ur my friends friend then ur my friend too!, im usually a bit nervous to int even if we've added so i may whisper first to ask to cuddle
+if ur my friends friend then ur my friend too!, i luv to oomf so i liek 2 follow and freely interact :3 ! i do not usually talk a lot on pt and owuld likely prefer silent interactions the majority of the time
 
 i dc a lot either because i fall asleep or get distracted with othe rthings Sorry
