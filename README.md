@@ -8,7 +8,7 @@
 <img width="65" height="65" alt="image" src="https://github.com/user-attachments/assets/dec3e203-3c3b-48b0-9685-42edfced049c" />
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=6C3A68&repeat=false&width=280&height=40&lines=%E2%98%85;%E2%98%85;%E2%98%85;DETERMINATION+BRINGS+YOU%2C)](https://git.io/typing-svg)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=471E4B&repeat=false&width=320&height=40&lines=%E2%98%85;%E2%98%85;%E2%98%85;%E2%98%85;CLOSER+TO+THE+END+OF+THIS+WORLD!!!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=6C3A68&repeat=false&width=280&height=40&lines=%E2%98%85;%E2%98%85;%E2%98%85;DETERMINATION+BRINGS+YOU...%2C)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=471E4B&repeat=false&width=320&height=40&lines=%E2%98%85;%E2%98%85;%E2%98%85;%E2%98%85;CLOSER+TO+THE+END+OF+THIS+WORLD!)](https://git.io/typing-svg)
 
 <img width="500" height="106" alt="image" src="https://github.com/user-attachments/assets/26db3898-65ad-46e6-9098-dcca46436727" />
