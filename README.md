@@ -1,6 +1,6 @@
 <img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/33ca2e5e-2892-4d8f-8e63-be8c636e8200" />
 
-<img width="56" height="56" alt="image" src="https://github.com/user-attachments/assets/dec3e203-3c3b-48b0-9685-42edfced049c" />
+<img width="66" height="66" alt="image" src="https://github.com/user-attachments/assets/dec3e203-3c3b-48b0-9685-42edfced049c" />
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=8FB3E7&repeat=false&width=310&height=40&lines=+YET+WE+ARE+REFUSING+THIS+DESTINY!)](https://git.io/typing-svg)
