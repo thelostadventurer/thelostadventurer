@@ -12,8 +12,6 @@
 
 <img width="500" height="106" alt="image" src="https://github.com/user-attachments/assets/26db3898-65ad-46e6-9098-dcca46436727" />
 
-https://github.com/kittinan/spotify-github-profile.git
-
 # Hearken !!
 *hie,* my name is Weow! proship & bigotry begone ... i try to c+h freely with others, and thou art encouraged to do the same! i am 17, so do take care if thy are below 16.
 
