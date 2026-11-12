@@ -11,3 +11,10 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=471E4B&repeat=false&width=320&height=40&lines=%E2%98%85;%E2%98%85;%E2%98%85;%E2%98%85;TO+THE+END+OF+THIS+WORLD!)](https://git.io/typing-svg)
 
 <img width="500" height="106" alt="image" src="https://github.com/user-attachments/assets/26db3898-65ad-46e6-9098-dcca46436727" />
+
+# Hearken !!
+*hie,* my name is Weow! proship & bigotry begone ... i try to c+h freely with others, and thou art free to do the same! i am 17, so do take care if thy are below 16.
+
+migraine & insomnia sufferer; if my name indicates so, cuddles would be very much appreciated! :D
+
+i dc frequently !!! sorree!
