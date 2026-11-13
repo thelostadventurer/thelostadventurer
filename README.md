@@ -1,29 +1,17 @@
-<p align="center"><img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/33ca2e5e-2892-4d8f-8e63-be8c636e8200" />
-<p align="center">
-<img width="80" height="80" alt="image" src="https://github.com/user-attachments/assets/dec3e203-3c3b-48b0-9685-42edfced049c" />
-
-<p align="center">
+<p align="center">reworking my github, this is a wip !!!
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=8FB3E7&repeat=false&width=310&height=40&lines=+YET+WE+ARE+REFUSING+THIS+DESTINY!)](https://git.io/typing-svg)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=C9B1DD&repeat=false&width=260&height=40&lines=+%E2%98%86;%E2%98%86;TAKE+CONTROL+OF+YOUR+LIFE!)](https://git.io/typing-svg) 
+<img width="2048" height="2048" alt="gif4" src="https://github.com/user-attachments/assets/a34a669c-466f-46d3-8998-fa1b5625bf13" />
 
-<p align="center">
-  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=6C3A68&repeat=false&width=280&height=40&lines=%E2%98%85;%E2%98%85;%E2%98%85;DETERMINATION+BRINGS+YOU+CLOSER%2C)](https://git.io/typing-svg)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Ink&size=15&duration=2000&pause=1000&color=471E4B&repeat=false&width=320&height=40&lines=%E2%98%85;%E2%98%85;%E2%98%85;%E2%98%85;TO+THE+END+OF+THIS+WORLD!)](https://git.io/typing-svg)
+<img width="736" height="736" alt="awwcutie" src="https://github.com/user-attachments/assets/6a27d65e-7a4a-44a5-8b9e-f90486168967" />
 
-<p align="center">
-<img width="500" height="106" alt="image" src="https://github.com/user-attachments/assets/26db3898-65ad-46e6-9098-dcca46436727" />
+<img width="200" height="200" alt="dongif" src="https://github.com/user-attachments/assets/3fc1e2fa-c07d-473d-9c5a-7687c77c6ed7" />
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&profanity=false&hide_remaster=false&bar_color=4e9db1&bar_color_cover=true">
-  </a>
-</p>
+<img width="1920" height="1400" alt="ohjeyesgif" src="https://github.com/user-attachments/assets/e7475da2-317e-44f6-918a-129cb9fb505f" />
 
-# Hearken !!
-*hie,* my name is Weow! proship & bigotry begone ... i try to c+h freely with others, and thou art encouraged to do the same! i am 17, so do take care if thy are below 16.
+<img width="200" height="151" alt="thegifever" src="https://github.com/user-attachments/assets/6b3ffb22-454b-41bc-868a-9ee1224dd637" />
 
-migraine & insomnia sufferer; if my name indicates so, cuddles would be very much appreciated! :D
+<img width="220" height="220" alt="gif2" src="https://github.com/user-attachments/assets/ee3a7975-e0c4-4bc9-bf10-065782ac3bbd" />
 
-i dc frequently !!! sorree!
+<img width="2048" height="2048" alt="gif3" src="https://github.com/user-attachments/assets/df4740ac-7fe4-461f-8781-6ac13e0ce478" />
+
+<img width="736" height="318" alt="gif1" src="https://github.com/user-attachments/assets/57f84cb9-bec5-4b19-81b0-22ba8ca05f59" />
