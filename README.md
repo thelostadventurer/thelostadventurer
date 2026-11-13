@@ -15,3 +15,9 @@
 <img width="50" height="50" alt="gif3" src="https://github.com/user-attachments/assets/df4740ac-7fe4-461f-8781-6ac13e0ce478" />
 
 <img width="50" height="20" alt="gif1" src="https://github.com/user-attachments/assets/57f84cb9-bec5-4b19-81b0-22ba8ca05f59" />
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
