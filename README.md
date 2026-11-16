@@ -1,6 +1,6 @@
 <p align="center"><img width="550" height="550" alt="image" src="https://github.com/user-attachments/assets/439bd696-ee99-480d-9f51-cb76e01e2112" />
 
-<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+Script&size=30&duration=2000&pause=800&color=F6C736&multiline=true&width=670&height=170&separator=%3C&lines=Hear+me+now%2C+o+thou+bleak+and+unbearable+world%2C%3CThou+art+base+and+debauched+as+can+be+;%3CAnd+a+knight%2C+with+his+banners+all+bravely+unfurled%2C%3CNow+hurls+down+his+gauntlet+to+thee~~!!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+Script&size=30&duration=2000&pause=800&color=F6C736&multiline=true&width=670&height=170&separator=%3C&lines=Hear+me+now%2C+o+thou+bleak+and+unbearable+world%2C%3CThou+art+base+and+debauched+as+can+be+;%3CAnd+a+knight%2C+with+his+banners+all+bravely+unfurled%2C%3CNow+hurls+down+his+gauntlet+to+thee~~!!)](https://git.io/typing-svg)
 
 
 <p align="center">
