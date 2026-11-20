@@ -17,3 +17,6 @@
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&profanity=false&hide_remaster=false&bar_color=4e9db1&bar_color_cover=true">
+
+<p align="center">dni proship, mcyt boundary breakers (im not into uu or alot of mcyt so i wont be able to tell if you are one....please genuinely just dni for my own comfort), terfs, bigots, endos/pro endos, just anythin wacky in general.
+  <p align="center">i do not stand for any of these things & would like to be informed if im unknowingly sitting with someone who partakes in it, as i tend to afk and allow others to cud freely
