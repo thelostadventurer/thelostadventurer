@@ -1,9 +1,9 @@
-<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/439bd696-ee99-480d-9f51-cb76e01e2112" />
+<p align="left"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/439bd696-ee99-480d-9f51-cb76e01e2112" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+Script&size=30&duration=2000&pause=800&color=F6C736&multiline=true&width=670&height=170&separator=%3C&lines=Hear+me+now%2C+o+thou+bleak+and+unbearable+world%2C%3CThou+art+base+and+debauched+as+can+be+;%3CAnd+a+knight%2C+with+his+banners+all+bravely+unfurled%2C%3CNow+hurls+down+his+gauntlet+to+thee~~!!)](https://git.io/typing-svg)
 
 
-<p align="center">
+<p align="left">
 <img width="60" height="60" alt="gif4" src="https://github.com/user-attachments/assets/a34a669c-466f-46d3-8998-fa1b5625bf13" />
 <img width="60" height="60" alt="awwcutie" src="https://github.com/user-attachments/assets/6a27d65e-7a4a-44a5-8b9e-f90486168967" />
 <img width="60" height="60" alt="dongif" src="https://github.com/user-attachments/assets/3fc1e2fa-c07d-473d-9c5a-7687c77c6ed7" />
@@ -16,10 +16,10 @@
 
 
 
-<p align="center">dni proship, mcyt boundary breakers (im not into uu or alot of mcyt so i wont be able to tell if you are one....please genuinely just dni for my own comfort), terfs, bigots, endos/pro endos, just anythin wacky in general.
-  <p align="center">i do not stand for any of these things & would like to be informed if im unknowingly sitting with someone who partakes in it, as i tend to afk and allow others to cud freely
-  <p align="center"> i tend to soft block instead of hiding out of fear of sitting on someone i cant see
+<p align="left">dni proship, mcyt boundary breakers (im not into uu or alot of mcyt so i wont be able to tell if you are one....please genuinely just dni for my own comfort), terfs, bigots, endos/pro endos, just anythin wacky in general.
+  <p align="left">i do not stand for any of these things & would like to be informed if im unknowingly sitting with someone who partakes in it, as i tend to afk and allow others to cud freely
+  <p align="left"> i tend to soft block instead of hiding out of fear of sitting on someone i cant see
     
-<p align="center">
+<p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=m4fra205b80h43oan5cnuallw&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&profanity=false&hide_remaster=false&bar_color=4e9db1&bar_color_cover=true">
