@@ -20,3 +20,4 @@
 
 <p align="center">dni proship, mcyt boundary breakers (im not into uu or alot of mcyt so i wont be able to tell if you are one....please genuinely just dni for my own comfort), terfs, bigots, endos/pro endos, just anythin wacky in general.
   <p align="center">i do not stand for any of these things & would like to be informed if im unknowingly sitting with someone who partakes in it, as i tend to afk and allow others to cud freely
+  <p align="center"> i tend to soft block instead of hiding out of fear of sitting on someone i cant see
